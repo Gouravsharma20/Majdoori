@@ -1,2 +1,2 @@
 # Majdoori
-majdur hai hum
+majdur hai hum pr majboor nhi 
