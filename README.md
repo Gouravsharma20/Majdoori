@@ -1,0 +1,2 @@
+# Majdoori
+majdur hai hum
